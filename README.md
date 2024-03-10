@@ -12,6 +12,7 @@
 - 💬 Ask me about **DBMS,AI,ML,JAVA,PYTHON,DSA,CP**
 
 - ⚡ Fun fact **"Code is like humor. When you have to explain it, it’s bad."**
+📫 How to reach me **angelsharma.18.12.04@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
